@@ -1,1 +1,1 @@
-# Kyrsovaya
+# Kursovaya
